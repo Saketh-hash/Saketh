@@ -17,7 +17,7 @@
 
 ## Connect with Me
 
-- LinkedIn: linkedin.com/in/saketh-b-21996a316
+- LinkedIn: [linkedin.com/in/saketh-b-21996a316]
 - Email: [bsaketh394@gmail.com]
 
 ## Interests
